@@ -1,4 +1,4 @@
-#  
+#  top Scripts for pull lucky blocks offers the most advanced pull lucky blocks Script, with no clip and aimbot. Perfect for dominating any match.
 
 
 
